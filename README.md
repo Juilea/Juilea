@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Juilea
+- 👀 I’m interested in programming
+- 🌱 I am currently learning how to create web applications
+- 💞️ I want to collaborate with you to improve my skills
+- 📫 How to reach me https://vk.com/yulyasha8325
